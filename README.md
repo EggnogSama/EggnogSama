@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EggnogSama
+- 👀 I’m interested in Games, Automation
+- 🌱 I’m currently learning Programming
+- 💞️ I’m looking to collaborate on anything that will help me in the long run
+- 📫 How to reach me Discord EggnogSama#3114
